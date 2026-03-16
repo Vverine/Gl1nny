@@ -9,6 +9,7 @@
 
   It's ${{\color{#2C74FC}{\text{ Glinny}}}}$, Nice to meet ya !! : )
  ${{\color{#5BE4EE}{\text{ϻυⳑτi faⲛ𝖽ⲟϻ }}}}$ + ${{\color{#88DADB}{\text{ϻυⳑτi Shipper}}}}$ ^ _ ^
+ @glin_ny is my discord 
  
 
 
@@ -16,4 +17,11 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/8f7f0071273d2e11c30296d0c5ae81e3/b98005af2980e008-65/s1280x1920/64d084173bb767421a1e19481f43c0f3b6366786.pnj" width="900">
 
+ ! ! ${{\color{#88DADB}{\text{ Before you int}}}}$ ! !
+ 
+ ; I have memory loss , Swears alot, Flirt as a joke, Bad grammar, Sensitive, Easily triggered and overwhelmed.
+ I'm sorry if i said / did something that bothered you
 
+ ${{\color{#ED5B5B}{\text{DNI please if you're}}}}$
+ ; Racist, Use Grape jokes, Gender discrimination, Communist, Dark shipper, Zoophile, Disrespectful toward any religions, Homophobic, PDF.
+ 
